@@ -23,7 +23,6 @@ for now just sit in a chair
 belief in mastery begins with endless queries yeah 
 endless queries yeah (that's what you looking for)
 
-
 ```
 
 ## Lyrics Testing Ground
