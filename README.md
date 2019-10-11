@@ -10,7 +10,7 @@ Meek Mill & Nicki Minaj Type Beat - "SHE BAD" Feat. Chris Brown
 
 **Title:** Ahead of Comparing / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** RikeLuxxBeats / **Lyrics:** 
 
 ## Lyrics
 
