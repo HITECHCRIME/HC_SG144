@@ -6,8 +6,7 @@
 
 ## Project Data
 
-Description.
-
+Meek Mill & Nicki Minaj Type Beat - "SHE BAD" Feat. Chris Brown
 
 **Title:**  / **Featuring:** 
 
@@ -22,7 +21,6 @@ for now just sit in a chair
 belief in mastery begins with endless queries yeah 
 endless queries yeah (that's what you looking for)
 
-Meek Mill & Nicki Minaj Type Beat - "SHE BAD" Feat. Chris Brown
 
 
 ```
