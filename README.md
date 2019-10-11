@@ -15,12 +15,13 @@ Meek Mill & Nicki Minaj Type Beat - "SHE BAD" Feat. Chris Brown
 ## Lyrics
 
 ```
+Endless queries yeah
+
 awareness such tough thing to bear, 
 ahead of comparing, quit is not forever, 
 for now just sit in a chair
 belief in mastery begins with endless queries yeah 
 endless queries yeah (that's what you looking for)
-
 
 
 ```
